@@ -2,7 +2,7 @@
 i'm just a 15 years old trying to  SAVE  the matrix.
 
 # here we go again, let me to you that: 
-- working on a universal linux tool
+- working on a universal linux tool.
 - learning Python in deep detail and make my web dev better.
 - im already good at web dev so if you wanna collab tell me.
 - i need help with my microwave.
