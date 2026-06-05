@@ -1,4 +1,4 @@
-## are you in my Profile?
+## are you in my Profile? good.
 i'm just a 15 years old trying to  SAVE  the matrix.
 
 # here we go again, let me to you that: 
@@ -8,6 +8,7 @@ i'm just a 15 years old trying to  SAVE  the matrix.
 - i need help with my microwave.
 - if i wanna reach me contact [malsman659@gmail.com](mailto:malsman659@gmail.com)
 - this is a temporary email until i make another one for github specifically.
+- i use arch btw =)
 - fun fact : this is all lowercase, why? why not.
 
 thanks for your reading, i think i need to go.
