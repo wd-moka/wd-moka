@@ -13,7 +13,7 @@ i'm just a 15 years old trying to  SAVE  the matrix.
 - fun fact : this is all lowercase, why? why not.
 
 thanks for your reading, i think i need to go.
-im running out of bytes.
+im hungry and running out of bytes.
 
 <!--
 **wd-moka/wd-moka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
