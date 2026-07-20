@@ -7,7 +7,7 @@ i'm just a 15 years old trying to  SAVE  the matrix.
 - im already good at web dev so if you wanna collab tell me.
 - i need help with my microwave.
 - i do art sometimes, and i do design also. what is the diffrenece anyway.
-- if i wanna reach me contact [malsman659@gmail.com](mailto:malsman659@gmail.com)
+- if i wanna reach me contact [wdmoka179@gmail.com](mailto:wdmoka179@gmail.com)
 - this is a temporary email until i make another one for github specifically.
 - i use arch btw =)
 - fun fact : this is all lowercase, why? why not.
